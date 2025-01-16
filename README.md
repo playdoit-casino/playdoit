@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/casmx">¡HAZ CLIC Y RECLAMA TU BONO!</a>
+
 # Playdoit Casino: La nueva generación de entretenimiento en México
 
 En 2025, Playdoit Casino se consolida como el destino favorito para los amantes de los juegos en México. Ofrecemos una amplia variedad de tragamonedas, apuestas deportivas y juegos de mesa diseñados para todos los gustos. Con tecnología de última generación y promociones irresistibles, Playdoit Casino lleva tu experiencia de juego al siguiente nivel. ¡Regístrate hoy y descubre por qué somos líderes en entretenimiento digital!
