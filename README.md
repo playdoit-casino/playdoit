@@ -6,7 +6,7 @@ En 2025, Playdoit Casino se consolida como el destino favorito para los amantes 
 
 playdoit
 
-playdoit casino
+<a href="https://playdoit-casino.mx">playdoit casino</a>
 
 playdoit app
 
